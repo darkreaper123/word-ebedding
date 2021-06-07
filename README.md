@@ -1,3 +1,3 @@
-https://drive.google.com/drive/u/0/folders/1tKMzSbbzgATzfqKmH6xJwsxJGXU2EMwJ
+https://drive.google.com/file/d/1dR2lvDuW-hI6fo1pAKD5N7MXaIDsC9c4/view?usp=sharing
 
-Link drive cho bài tập lớn
+Link drive cho file zip bài tập lớn
